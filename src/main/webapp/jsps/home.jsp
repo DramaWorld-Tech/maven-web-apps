@@ -16,7 +16,7 @@
 	leader Dr. (Mola) Forseh. He is a true leader and he believes in "never leave a team member 
 	behind". I want to also recognize Jane, Beatrice and Dasime, its been fun working with you guys.
 	Our prayers remain the same: GET EVERYONE HIRED!!!
-	The shout of the King is in our midst. His name is JESUS.  HE IS OUR SUCCESS ACCESS KEY</h2>
+	The shout of the King is in our midst. His name is JESUS Christ.  HE IS OUR SUCCESS ACCESS KEY</h2>
 <hr>
 <div style="text-align: center;">
 	<span>
